@@ -1,1 +1,1 @@
-# Physics-Bachelor-s-Thesis
+# Physics Bachelor's degree Thesis
